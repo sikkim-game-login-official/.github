@@ -7,7 +7,7 @@
 
 Sikkim is a beautiful northeastern state of India, known for its breathtaking landscapes, rich culture, and adventure tourism. However, in recent years, **Sikkim Game** has gained attention among online gaming enthusiasts. Whether you're looking to explore traditional Sikkimese games, online gaming platforms, or gambling options in Sikkim, this guide has everything you need to know.  
 
-![Sikkim Game](https://github.com/user-attachments/assets/23c4b0c1-05ad-4d3a-90f0-6e5529f4c41e)(https://www.sikkim11.com/#/register?invitationCode=316164149930)
+[![Sikkim Game](https://github.com/user-attachments/assets/23c4b0c1-05ad-4d3a-90f0-6e5529f4c41e)](https://www.sikkim11.com/#/register?invitationCode=316164149930)
 
 
 In this article, we will cover topics such as **Sikkim Game Download, Sikkim Game Login, Sikkim Game Register, and Sikkim Game Invite Code** to help you get started. We will also answer common queries like **“What is Sikkim famous game?”** and **“Is gambling legal in Sikkim?”**  
